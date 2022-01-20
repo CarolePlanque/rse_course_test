@@ -1,4 +1,4 @@
-Mountains In Scotland
+Mountains in Scotland
 ==================
 
 * Ben Eighe
